@@ -25,7 +25,7 @@ GCSU and Georgia Highlands College.
 * ["On 'My Mother as Penelope'."](http://structureandstyle.org/post/93705929440/my-mother-as-penelope) [essay] _Structure and Style_. 03 AUG 2014. Web.
 
 #### 2013
-* "The Shape of Our Bodies." _Dressing Room Poetry Journal_. Issue 4. 21 JUN 2013. Web.
+* ["The Shape of Our Bodies."](https://www.dressingroompoetryjournal.com/emily-lake-hansen.html) _Dressing Room Poetry Journal_. Issue 4. 21 JUN 2013. Web.
 * "The Self and Others" and "For my son, who is not allergic to eggs." _The Fertile Source_. 17 JUN 2013. Web.
 * "How to Feed a Sea Lion" (reprint). _Agnes Scott The Magazine_. 90.1. 31. Print.
 * "The Self and Place." The Camel Saloon. 04 JUN 2013. Web.
