@@ -8,3 +8,19 @@ _Till the Tide_, a collection of mermaid poetry from Sundress
 Publications. She received an MFA in creative writing from Georgia
 College & State University and has served as an English instructor both at
 GCSU and Georgia Highlands College.
+
+## Works
+
+### Individual Poems and Essays
+2018	"And my therapist asks what was the primary emotion of your childhood?" [essay] _The McNeese Review_. Spring 2018
+2018	"Apologies" and "BRAT." _Nightjar Review_. February 2018.
+2015	["The Escape Artist."](http://www.sundresspublications.com/stirring/archives/v17/e8/hansene.htm) _Stirring: A Literary Collective_. Volume 17, Edition 8. 01 AUG 2015. Web.
+2015	"Before Weeki Wachee" and "The Sailor Visits the Mermaid at Weeki Wachee." [_Mermaids in the Basement_](https://squareup.com/market/sundress-publications/till-the-tide-an-anthology-of-mermaid-poetry). Sundress Publications. 2015.
+2014	["On 'My Mother as Penelope'."](http://structureandstyle.org/post/93705929440/my-mother-as-penelope) [essay] _Structure and Style_. 03 AUG 2014. Web.
+2013	"The Shape of Our Bodies." _Dressing Room Poetry Journal_. Issue 4. 21 JUN 2013. Web.
+2013	"The Self and Others" and "For my son, who is not allergic to eggs." _The Fertile Source_. 17 JUN 2013. Web.
+2013	"How to Feed a Sea Lion" (reprint). _Agnes Scott The Magazine_. 90.1. 31. Print.
+2013	"The Self and Place." The Camel Saloon. 04 JUN 2013. Web.
+2013	"Dismemberment." The Camel Saloon. 30 MAY 2013. Web.
+2013	"Postcards from Weeki Wachee," "How to Feed a Sea Lion," "Why We Feed Him Tomatoes," and "Children's Pool," [Poetry Feature](https://atticusreview.org/featured-poet-emily-lake-hansen/). _Atticus Review_. 15 JAN 2013. Web.
+2012	"Mother/Mother." [essay] Agnes Scott Writer's Festival Magazine. Print.
