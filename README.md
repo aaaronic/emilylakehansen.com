@@ -15,7 +15,7 @@ GCSU and Georgia Highlands College.
 
 #### 2018
 * "And my therapist asks what was the primary emotion of your childhood?" [essay] _The McNeese Review_. Spring 2018
-* "Apologies" and "BRAT." _Nightjar Review_. February 2018.
+* ["Apologies"](https://nightjarreview.com/emily-lake-hansen.html) and ["BRAT."](https://nightjarreview.com/emily-lake-hansen.html) _Nightjar Review_. February 2018.
 
 #### 2015
 * ["The Escape Artist."](http://www.sundresspublications.com/stirring/archives/v17/e8/hansene.htm) _Stirring: A Literary Collective_. Volume 17, Edition 8. 01 AUG 2015. Web.
