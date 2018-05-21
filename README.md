@@ -11,6 +11,10 @@ GCSU and Georgia Highlands College.
 
 ## Works
 
+### Books
+
+_The Way the Body Had To Travel_ - [Dancing Girl Press](https://dulcetshop.myshopify.com/products/the-way-the-body-had-to-travel-emily-lake-hansen) [[Review](https://www.upthestaircase.org/the-way-the-body-had-to-travel.html)]
+
 ### Individual Poems and Essays
 
 #### 2018
