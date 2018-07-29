@@ -38,3 +38,6 @@ _The Way the Body Had To Travel_ - [Dancing Girl Press](https://dulcetshop.mysho
 
 #### 2012
 * "Mother/Mother." [essay] Agnes Scott Writer's Festival Magazine. Print.
+
+## Awards and Nominations
+* Nominee - ["Best of the Net 2018"](https://nightjarreview.com/awards.html) Nightjar Review.
