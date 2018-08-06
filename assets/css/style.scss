@@ -2,6 +2,9 @@
 ---
 
 @import "{{ site.theme }}";
+header img {
+  max-height: 405px;
+}
 section img {
   max-height: 250px;
 }
