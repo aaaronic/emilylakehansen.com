@@ -19,8 +19,9 @@ _The Way the Body Had To Travel_ - [Dancing Girl Press](https://dulcetshop.mysho
 ### Individual Poems and Essays
 
 #### 2018
-* "And my therapist asks what was the primary emotion of your childhood?" [essay] _The McNeese Review_. Spring 2018
-* ["Apologies"](https://nightjarreview.com/emily-lake-hansen.html) and ["BRAT."](https://nightjarreview.com/emily-lake-hansen.html) _Nightjar Review_. February 2018.
+* ["Wild"](https://clementineunbound.wordpress.com/2018/08/07/emily-lake-hansen-wild/) _Clementine Unbound_. 07 AUG 2018. Web.
+* "And my therapist asks what was the primary emotion of your childhood?" [essay] _The McNeese Review_. Spring 2018.
+* ["Apologies"](https://nightjarreview.com/emily-lake-hansen.html) and ["BRAT."](https://nightjarreview.com/emily-lake-hansen.html) _Nightjar Review_. FEB 2018. Web.
 
 #### 2015
 * ["The Escape Artist."](http://www.sundresspublications.com/stirring/archives/v17/e8/hansene.htm) _Stirring: A Literary Collective_. Volume 17, Edition 8. 01 AUG 2015. Web.
