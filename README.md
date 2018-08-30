@@ -19,6 +19,7 @@ _The Way the Body Had To Travel_ - [Dancing Girl Press](https://dulcetshop.mysho
 ### Individual Poems and Essays
 
 #### 2018
+* ["Mirage"](https://www.swwim.org/blog/2018/8/30/mirage-by-emily-lake-hansen) _SWWIM Daily_. 30 AUG 2018. Web.
 * ["Wild"](https://clementineunbound.wordpress.com/2018/08/07/emily-lake-hansen-wild/) _Clementine Unbound_. 07 AUG 2018. Web.
 * "And my therapist asks what was the primary emotion of your childhood?" [essay] _The McNeese Review_. Spring 2018.
 * ["Apologies"](https://nightjarreview.com/emily-lake-hansen.html) and ["BRAT."](https://nightjarreview.com/emily-lake-hansen.html) _Nightjar Review_. FEB 2018. Web.
