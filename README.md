@@ -45,7 +45,7 @@ _The Way the Body Had To Travel_ - [Dancing Girl Press](https://dulcetshop.mysho
 * "How to Feed a Sea Lion" (reprint). _Agnes Scott The Magazine_. 90.1. 31. Print.
 * "The Self and Place." The Camel Saloon. 04 JUN 2013. Web.
 * "Dismemberment." The Camel Saloon. 30 MAY 2013. Web.
-* "Postcards from Weeki Wachee," "How to Feed a Sea Lion," "Why We Feed Him Tomatoes," and "Children's Pool," [Poetry Feature](https://atticusreview.org/featured-poet-emily-lake-hansen/). _Atticus Review_. 15 JAN 2013. Web.
+* ["Postcards from Weeki Wachee,"](https://atticusreview.org/postcards-from-weeki-wachee/) ["How to Feed a Sea Lion,"](https://atticusreview.org/how-to-feed-a-sea-lion/) ["Why We Feed Him Tomatoes,"](https://atticusreview.org/why-we-feed-him-tomatoes/) and ["Children's Pool,"](https://atticusreview.org/childrens-pool/) [Poetry Feature](https://atticusreview.org/featured-poet-emily-lake-hansen/). _Atticus Review_. 15 JAN 2013. Web.
 
 #### 2012
 * "Mother/Mother." [essay] Agnes Scott Writer's Festival Magazine. Print.
