@@ -18,6 +18,14 @@ _The Way the Body Had To Travel_ - [Dancing Girl Press](https://dulcetshop.mysho
 
 ### Individual Poems and Essays
 
+#### 2019
+* ["My male professor asks haven’t women been writing about this for decades already?"](http://www.glass-poetry.com/journal/2019/september/hansen-my.html) _Glass: A Journal of Poetry_. SEP 2019. Web.
+* ["Pharaoh's Daughter Keeps a Diary"](http://midwayjournal.com/pharaohs-daughter-keeps-a-diary/) _Midway Journal_. 15 JUL 2019. Web.
+* ["Rainy Season"](http://midwayjournal.com/rainy-season/) _Midway Journal_. 15 JUL 2019. Web.
+* ["Pharaoh's Daughter Keeps a Diary"](https://rustandmoth.com/work/pharaohs-daughter-keeps-a-diary/) _Rust + Moth_. Summer 2019.
+* ["Baptism"](https://atticusreview.org/baptism/) _Atticus Review_. 19 JUN 2019. Web.
+* ["Desert Vacation"](https://atticusreview.org/desert-vacation) _Atticus Review_. 17 APR 2019. Web.
+
 #### 2018
 * ["Mirage"](https://www.swwim.org/blog/2018/8/30/mirage-by-emily-lake-hansen) _SWWIM Daily_. 30 AUG 2018. Web.
 * ["Wild"](https://clementineunbound.wordpress.com/2018/08/07/emily-lake-hansen-wild/) _Clementine Unbound_. 07 AUG 2018. Web.
