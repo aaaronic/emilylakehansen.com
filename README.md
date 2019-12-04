@@ -52,4 +52,5 @@ _The Way the Body Had To Travel_ - [Dancing Girl Press](https://dulcetshop.mysho
 
 ## Awards and Nominations
 * Nominee - ["Best of the Net 2019"](https://atticusreview.org/best-of-the-net-nominations-2019/) Atticus Review.
+* Third Prize - ["2019 Atticus Review Poetry Contest"]()https://atticusreview.org/announcing-the-2019-atticus-review-poetry-contest-winners/ Atticus Review.
 * Nominee - ["Best of the Net 2018"](https://nightjarreview.com/awards.html) Nightjar Review.
