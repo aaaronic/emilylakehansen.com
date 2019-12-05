@@ -27,6 +27,7 @@ _The Way the Body Had To Travel_ - [Dancing Girl Press](https://dulcetshop.mysho
 * ["Desert Vacation"](https://atticusreview.org/desert-vacation) _Atticus Review_. 17 APR 2019. Web.
 
 #### 2018
+* ["Brat in the Garden of Eden"](https://8poems.com/issue-four#/brat-in-the-garden-of-eden-emily-lake-hansen/) _8 Poems_. OCT 2018. Web.
 * ["Mirage"](https://www.swwim.org/blog/2018/8/30/mirage-by-emily-lake-hansen) _SWWIM Daily_. 30 AUG 2018. Web.
 * ["Wild"](https://clementineunbound.wordpress.com/2018/08/07/emily-lake-hansen-wild/) _Clementine Unbound_. 07 AUG 2018. Web.
 * "And my therapist asks what was the primary emotion of your childhood?" [essay] _The McNeese Review_. Spring 2018.
