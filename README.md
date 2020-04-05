@@ -21,6 +21,7 @@ _The Way the Body Had To Travel_ - [Dancing Girl Press](https://dulcetshop.mysho
 ## Individual Poems and Essays
 
 ### 2020
+* ["Pharaoh's Daughter Keeps a Diary"](https://www.kissingdynamitepoetry.com/emily-lake-hansen-pharaohs-daughter.html) _Kissing Dynamite_. APR 2020. Web.
 * ["My Therpist Says When There's Trauma, the Body Keeps the Score"](http://exhumemag.weebly.com/emily-lake-hansen.html) _Exhume_. FEB 2020. Web.
 * ["At the Palomino Club"](http://exhumemag.weebly.com/emily-lake-hansen.html) _Exhume_. FEB 2020. Web.
 * ["My Therpist Assigns Homework"](http://exhumemag.weebly.com/emily-lake-hansen.html) _Exhume_. FEB 2020. Web.
