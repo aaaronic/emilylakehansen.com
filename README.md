@@ -12,8 +12,8 @@ GCSU and Georgia Highlands College.
 
 ## Books
 [<img src="/assets/images/home_and_other_duty_stations.jpg" alt="Cover Image" />](https://kelsaybooks.com/products/home-and-other-duty-stations)  
-_Home and other Duty Stations_ - [Kelsay Books](https://kelsaybooks.com/products/home-and-other-duty-stations) - 2020  
-[[Also available on Amazon (affiliate link)](https://amzn.to/3bfGLeS)]
+_Home and other Duty Stations_ - [Kelsay Books](https://kelsaybooks.com/products/home-and-other-duty-stations) [[Review](https://sundressblog.com/2020/04/07/sundress-reads-home-and-other-duty-stations/)] - 2020  
+[[Also available on Amazon (affiliate link)](https://amzn.to/3bfGLeS)] 
 
 ![Chapbook Cover](/assets/images/chapbook_cover.jpg)  
 _The Way the Body Had To Travel_ - [Dancing Girl Press](https://dulcetshop.myshopify.com/products/the-way-the-body-had-to-travel-emily-lake-hansen) [[Review](https://www.upthestaircase.org/the-way-the-body-had-to-travel.html)] - 2014
