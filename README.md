@@ -1,6 +1,7 @@
 ## About
-Emily Lake Hansen is the author of the chapbook _The Way the Body Had to
-Travel_ (dancing girl press, 2014). Her poetry and essays have appeared
+Emily Lake Hansen is the author of book _Home and Other Duty Stations_
+(Kelsay Books, 2020) and the chapbook _The Way the Body Had to
+Travel_ (Dancing Girl Press, 2014). Her poetry and essays have appeared
 or are forthcoming in Nightjar Review, Atticus Review, Stirring: A
 Literary Collection, The McNeese Review, and Dressing Room Poetry
 Journal among others. Her work has also been featured in the anthology
@@ -12,8 +13,8 @@ GCSU and Georgia Highlands College.
 
 ## Books
 [<img src="/assets/images/home_and_other_duty_stations.jpg" alt="Cover Image" />](https://kelsaybooks.com/products/home-and-other-duty-stations)  
-_Home and other Duty Stations_ - [Kelsay Books](https://kelsaybooks.com/products/home-and-other-duty-stations) [[Review](https://sundressblog.com/2020/04/07/sundress-reads-home-and-other-duty-stations/)] - 2020  
-[[Also available on Amazon (affiliate link)](https://amzn.to/3bfGLeS)] 
+_Home and Other Duty Stations_ - [Kelsay Books](https://kelsaybooks.com/products/home-and-other-duty-stations) [[Review](https://sundressblog.com/2020/04/07/sundress-reads-home-and-other-duty-stations/)] - 2020  
+[[Also available on Amazon](https://www.amazon.com/Home-Other-Stations-Emily-Hansen/dp/1950462838)]
 
 ![Chapbook Cover](/assets/images/chapbook_cover.jpg)  
 _The Way the Body Had To Travel_ - [Dancing Girl Press](https://dulcetshop.myshopify.com/products/the-way-the-body-had-to-travel-emily-lake-hansen) [[Review](https://www.upthestaircase.org/the-way-the-body-had-to-travel.html)] - 2014
