@@ -10,6 +10,9 @@ Publications. She received an MFA in creative writing from Georgia
 College & State University and has served as an English instructor both at
 GCSU and Georgia Highlands College.
 
+## In Search of Home
+<iframe src="https://www.google.com/maps/d/u/0/embed?mid=1FZ_WOyBQMjhcsMM_5njwuUSw5eVPTIIu" width="640" height="480"></iframe>
+
 
 ## Books
 [<img src="/assets/images/home_and_other_duty_stations.jpg" alt="Cover Image" />](https://kelsaybooks.com/products/home-and-other-duty-stations)  
