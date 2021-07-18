@@ -24,6 +24,9 @@ _The Way the Body Had To Travel_ - [Dancing Girl Press](https://dulcetshop.mysho
 
 ## Individual Poems and Essays
 
+### 2021
+* ["In which I forget to check if Punxsutawney Phil saw his shadow"](https://32poems.com/issues/19-1-summer-2021/) _32 Poems_. Summer 2021.
+
 ### 2020
 * ["Luxury"](https://www.hobartpulp.com/web_features/luxury) _HOBART_. DEC 2020. Web.
 * ["Pharaoh's Daughter Keeps a Diary"](https://www.kissingdynamitepoetry.com/emily-lake-hansen-pharaohs-daughter.html) _Kissing Dynamite_. APR 2020. Web.
