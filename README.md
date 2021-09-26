@@ -22,6 +22,8 @@ _The Way the Body Had To Travel_ - [Dancing Girl Press](https://dulcetshop.mysho
 
 ### 2021
 * ["In which I forget to check if Punxsutawney Phil saw his shadow"](https://32poems.com/issues/19-1-summer-2021/) _32 Poems_. Summer 2021.
+* ["A Review of Lisa Fay Coutley’s Tether"](https://theadroitjournal.org/2021/06/23/a-review-of-lisa-fay-coutleys-tether-by-emily-lake-hansen/) _The Adroit Journal_. JUN 2021. Web.
+* ["Ambivalence"](https://www.hobartpulp.com/web_features/ambivalence) _HOBART_. FEB 2021. Web.
 
 ### 2020
 * ["Luxury"](https://www.hobartpulp.com/web_features/luxury) _HOBART_. DEC 2020. Web.
