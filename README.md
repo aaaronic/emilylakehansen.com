@@ -45,7 +45,7 @@ _The Way the Body Had To Travel_ - [Dancing Girl Press](https://dulcetshop.mysho
 * ["The Lake's Only Daughter"](https://matterpress.com/journal/2021/11/) _The Journal of Compressed Creative Arts_. 
 * ["A Review of Lisa Fay Coutley’s Tether"](https://theadroitjournal.org/2021/06/23/a-review-of-lisa-fay-coutleys-tether-by-emily-lake-hansen/) _The Adroit Journal_. 
 * ["Ambivalence"](https://www.hobartpulp.com/web_features/ambivalence) _HOBART_. 
-* ["On 'My Mother as Penelope'."](http://structureandstyle.org/post/93705929440/my-mother-as-penelope) [essay] _Structure and Style_.
+* ["On 'My Mother as Penelope'."](http://structureandstyle.org/post/93705929440/my-mother-as-penelope) _Structure and Style_.
 
 ## Awards and Nominations
 * Honorable Mention - [Limp Wrist Glittler Bomb Award](https://www.limpwristmagazine.com/lw07)
@@ -55,5 +55,5 @@ _The Way the Body Had To Travel_ - [Dancing Girl Press](https://dulcetshop.mysho
 * Semi-Finalist - [Sundress Publications Open Reading 2021](https://sundressblog.com/2021/12/20/2021-poetry-open-reading-period-selections-announces/).
 * Nominee - [Georgia Author of the Year Awards 2021](https://www.authoroftheyear.org/previous-nominees/2021)
 * Nominee - ["Best of the Net 2019"](https://atticusreview.org/best-of-the-net-nominations-2019/) Atticus Review.
-* Third Prize - ["2019 Atticus Review Poetry Contest"]()https://atticusreview.org/announcing-the-2019-atticus-review-poetry-contest-winners/ Atticus Review.
+* Third Prize - ["2019 Atticus Review Poetry Contest"](https://atticusreview.org/announcing-the-2019-atticus-review-poetry-contest-winners/) Atticus Review.
 * Nominee - ["Best of the Net 2018"](https://nightjarreview.com/awards.html) Nightjar Review.
