@@ -53,7 +53,7 @@ _The Way the Body Had To Travel_ - [Dancing Girl Press](https://dulcetshop.mysho
 * Semi-Finalist - Button Poetry Chapbook Contest 2022
 * Semi-Finalist - Tomaz Salamun Prize
 * Semi-Finalist - [Sundress Publications Open Reading 2021](https://sundressblog.com/2021/12/20/2021-poetry-open-reading-period-selections-announces/).
-* Nominee - ]Georgia Author of the Year Awards 2021](https://www.authoroftheyear.org/previous-nominees/2021)
+* Nominee - [Georgia Author of the Year Awards 2021](https://www.authoroftheyear.org/previous-nominees/2021)
 * Nominee - ["Best of the Net 2019"](https://atticusreview.org/best-of-the-net-nominations-2019/) Atticus Review.
 * Third Prize - ["2019 Atticus Review Poetry Contest"]()https://atticusreview.org/announcing-the-2019-atticus-review-poetry-contest-winners/ Atticus Review.
 * Nominee - ["Best of the Net 2018"](https://nightjarreview.com/awards.html) Nightjar Review.
