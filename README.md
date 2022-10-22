@@ -23,7 +23,7 @@ _The Way the Body Had To Travel_ - [Dancing Girl Press](https://dulcetshop.mysho
 
 ### Poems
 * ["Ode to Lizzo"](https://www.upthestaircase.org/emily-lake-hansen-issue-58.html) _Up the Staircase Quarterly_.
-* ["Concerning the results of your ACE screening"](https://www.limpwristmagazine.com/lw07) _Limp Wrist_.
+* ["Concerning the results of your ACE screening"](https://www.limpwristmagazine.com/lw7) _Limp Wrist_.
 * ["If I have a home, it's been on fire for decades"](https://www.poetry.onl/read/em-l-h) _Poetry Online_.
 * ["Latrophobia (Induced by Internalized Fatphobia)](http://sotospeakjournal.org/latrophobia/) _So to Speak_.
 * ["Change of Address" and "The Last Birthday Party"](https://oneartpoetry.com/2022/03/30/two-poems-by-emily-lake-hansen/) _ONE Art_.
@@ -48,6 +48,8 @@ _The Way the Body Had To Travel_ - [Dancing Girl Press](https://dulcetshop.mysho
 * ["On 'My Mother as Penelope'."](http://structureandstyle.org/post/93705929440/my-mother-as-penelope) _Structure and Style_.
 
 ## Awards and Nominations
+* Finalist - [Spring 2022 Black River Chapbook Competition, Black Lawarance Press](https://blacklawrencepress.com/spring-2022-black-river-chapbook-competition-finalists-semifinalists/) 
+* Finalit, longlist - [Santa Fe Writers Project Literary Award](https://www.sfwp.com/2022-awards-program-results)
 * Honorable Mention - [Limp Wrist Glittler Bomb Award](https://www.limpwristmagazine.com/lw07)
 * Finalist - [Page Prize in Creative NonFiction](http://www.pinchjournal.com/2021-pinch-literary-awards)
 * Semi-Finalist - Button Poetry Chapbook Contest 2022
