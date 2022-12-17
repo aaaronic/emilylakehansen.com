@@ -8,7 +8,7 @@ Glass: A Journal of Poetry, Atticus Review, The Shore, Up the Staircase Quarterl
 and Midway Journal among others. She received an MFA in creative writing from Georgia
 College and is currently a PhD candidate at Georgia State University. A receiptient 
 of the 2022 Longleaf Poetry Fellowship and an Honorable Mention for the 2022 Limp Wrist 
-Glitter Bomb Award, Emily lives in Atlanta where teaches firsty-year writng and poetry at Agnes Scott College.
+Glitter Bomb Award, Emily lives in Atlanta where teaches first-year writng and poetry at Agnes Scott College.
 
 ## Books
 [<img src="/assets/images/home_and_other_duty_stations.jpg" alt="Cover Image" />](https://kelsaybooks.com/products/home-and-other-duty-stations)  
