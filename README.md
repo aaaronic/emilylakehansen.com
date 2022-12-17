@@ -1,5 +1,5 @@
 ## About
-Emily Lake Hansen is a fat, bisexual poet and memoirist and the author of the poetry collection
+Emily Lake Hansen is a fat, bisexual,  and invisibly disabled poet and memoirist and the author of the poetry collection
 _Home and Other Duty Stations_ (Kelsay Books, 2020) as well as the chapbooks 
 _Pharaoh's Daughter Keeps a Diary_ (Kissing Dynamite Press, forthcoming 2022) 
 and _The Way the Body Had to Travel_ (Dancing Girl Press, 2014). Her poetry 
@@ -8,8 +8,7 @@ Glass: A Journal of Poetry, Atticus Review, The Shore, Up the Staircase Quarterl
 and Midway Journal among others. She received an MFA in creative writing from Georgia
 College and is currently a PhD candidate at Georgia State University. A receiptient 
 of the 2022 Longleaf Poetry Fellowship and an Honorable Mention for the 2022 Limp Wrist 
-Glitter Bomb Award, Emily lives in Atlanta where she serves as an instructor 
-of English & Creative Writing at Agnes Scott College.
+Glitter Bomb Award, Emily lives in Atlanta where teaches firsty-year writng and poetry at Agnes Scott College.
 
 ## Books
 [<img src="/assets/images/home_and_other_duty_stations.jpg" alt="Cover Image" />](https://kelsaybooks.com/products/home-and-other-duty-stations)  
@@ -22,6 +21,7 @@ _The Way the Body Had To Travel_ - [Dancing Girl Press](https://dulcetshop.mysho
 ## Selected Publications
 
 ### Poems
+* ["Bird"](https://oneartpoetry.com/2022/11/18/bird-by-emily-lake-hansen/) _ONE Art_.
 * ["Ode to Lizzo"](https://www.upthestaircase.org/emily-lake-hansen-issue-58.html) _Up the Staircase Quarterly_.
 * ["Concerning the results of your ACE screening"](https://www.limpwristmagazine.com/lw7) _Limp Wrist_.
 * ["If I have a home, it's been on fire for decades"](https://www.poetry.onl/read/em-l-h) _Poetry Online_.
