@@ -1,14 +1,13 @@
 ## About
-Emily Lake Hansen is a fat, bisexual,  and invisibly disabled poet and memoirist and the author of the poetry collection
+Emily Lake Hansen (she/her) is a fat, bisexual,  and invisibly disabled poet and memoirist and the author of the poetry collection
 _Home and Other Duty Stations_ (Kelsay Books, 2020) as well as the chapbooks 
-_Pharaoh's Daughter Keeps a Diary_ (Kissing Dynamite Press, forthcoming 2022) 
+_Pharaoh's Daughter Keeps a Diary_ (Kissing Dynamite Press, forthcoming) 
 and _The Way the Body Had to Travel_ (Dancing Girl Press, 2014). Her poetry 
-and essays have appeared or are forthcoming in Pleiades, 32 Poems, Hobart, 
-Glass: A Journal of Poetry, Atticus Review, The Shore, Up the Staircase Quarterly, 
-and Midway Journal among others. She received an MFA in creative writing from Georgia
+and essays have appeared in Pleiades, 32 Poems, Hobart, So to Speak,
+Glass: A Journal of Poetry, Atticus Review, The Shore, and Up the Staircase Quarterly, among others. She received an MFA in creative writing from Georgia
 College and is currently a PhD candidate at Georgia State University. A receiptient 
 of the 2022 Longleaf Poetry Fellowship and an Honorable Mention for the 2022 Limp Wrist 
-Glitter Bomb Award, Emily lives in Atlanta where teaches first-year writng and poetry at Agnes Scott College.
+Glitter Bomb Award, Emily lives in Atlanta where she teaches first-year writng and poetry at Agnes Scott College.
 
 ## Books
 [<img src="/assets/images/home_and_other_duty_stations.jpg" alt="Cover Image" />](https://kelsaybooks.com/products/home-and-other-duty-stations)  
