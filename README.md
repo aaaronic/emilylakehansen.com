@@ -3,8 +3,8 @@ Emily Lake Hansen (she/her) is a fat, bisexual,  and invisibly disabled poet and
 _Home and Other Duty Stations_ (Kelsay Books, 2020) as well as the chapbooks 
 _Pharaoh's Daughter Keeps a Diary_ (Kissing Dynamite Press, forthcoming) 
 and _The Way the Body Had to Travel_ (Dancing Girl Press, 2014). Her poetry 
-and essays have appeared in Pleiades, 32 Poems, Hobart, So to Speak,
-Glass: A Journal of Poetry, Atticus Review, The Shore, and Up the Staircase Quarterly, among others. She received an MFA in creative writing from Georgia
+and essays have appeared or are forthcoming in Pleiades, 32 Poems, CALYX, Hobart, So to Speak,
+Glass: A Journal of Poetry, Atticus Review, The Shore, SWWIM, and Up the Staircase Quarterly, among others. She received an MFA in creative writing from Georgia
 College and is currently a PhD candidate at Georgia State University. A receiptient 
 of the 2022 Longleaf Poetry Fellowship and an Honorable Mention for the 2022 Limp Wrist 
 Glitter Bomb Award, Emily lives in Atlanta where she teaches first-year writng and poetry at Agnes Scott College.
@@ -20,6 +20,8 @@ _The Way the Body Had To Travel_ - [Dancing Girl Press](https://dulcetshop.mysho
 ## Selected Publications
 
 ### Poems
+* ["WOMEN WITHOUT A COUNTRY"](https://www.passengersjournal.com/volume-4-issue-1-poetry/#hansen) _Passangers Journal_.
+* ["Paradise" and "Lifeguarding"](https://secure.touchnet.com/C20040_ustores/web/product_detail.jsp?PRODUCTID=575) _Pleiades_.
 * ["Bird"](https://oneartpoetry.com/2022/11/18/bird-by-emily-lake-hansen/) _ONE Art_.
 * ["Ode to Lizzo"](https://www.upthestaircase.org/emily-lake-hansen-issue-58.html) _Up the Staircase Quarterly_.
 * ["Concerning the results of your ACE screening"](https://www.limpwristmagazine.com/lw7) _Limp Wrist_.
@@ -41,6 +43,8 @@ _The Way the Body Had To Travel_ - [Dancing Girl Press](https://dulcetshop.mysho
 * ["The Escape Artist."](http://www.sundresspublications.com/stirring/archives/v17/e8/hansene.htm) _Stirring: A Literary Collective_.
 
 ### Essays & Reviews
+* ["American Pastoral for the 21st Century"](https://www.stilljournal.net/emily-lake-hansen-cnf2023.php) _Still: The Journal_.
+* ["A History of the Body as Told Through Reality Television"](https://sotospeak.submittable.com/submit/257413/for-purchase-2023-print-issue-physical-or-pdf) _So to Speak_. 
 * ["The Lake's Only Daughter"](https://matterpress.com/journal/2021/11/) _The Journal of Compressed Creative Arts_. 
 * ["A Review of Lisa Fay Coutley’s Tether"](https://theadroitjournal.org/2021/06/23/a-review-of-lisa-fay-coutleys-tether-by-emily-lake-hansen/) _The Adroit Journal_. 
 * ["Ambivalence"](https://www.hobartpulp.com/web_features/ambivalence) _HOBART_. 
@@ -48,7 +52,7 @@ _The Way the Body Had To Travel_ - [Dancing Girl Press](https://dulcetshop.mysho
 
 ## Awards and Nominations
 * Finalist - [Spring 2022 Black River Chapbook Competition, Black Lawarance Press](https://blacklawrencepress.com/spring-2022-black-river-chapbook-competition-finalists-semifinalists/) 
-* Finalit, longlist - [Santa Fe Writers Project Literary Award](https://www.sfwp.com/2022-awards-program-results)
+* Finalit - [Santa Fe Writers Project Literary Award](https://www.sfwp.com/2022-awards-program-results)
 * Honorable Mention - [Limp Wrist Glittler Bomb Award](https://www.limpwristmagazine.com/lw07)
 * Finalist - [Page Prize in Creative NonFiction](http://www.pinchjournal.com/2021-pinch-literary-awards)
 * Semi-Finalist - Button Poetry Chapbook Contest 2022
