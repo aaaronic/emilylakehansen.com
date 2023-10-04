@@ -2,7 +2,7 @@
 Emily Lake Hansen (she/her) is a fat, bisexual,  and invisibly disabled writer and teacher and the author of the poetry collection
 _Home and Other Duty Stations_ (Kelsay Books) as well as the chapbooks 
 _Pharaoh's Daughter Keeps a Diary_ (forthcoming from Kissing Dynamite Press) 
-and _The Way the Body Had to Travel_ (Dancing Girl Press). Her poetry 
+and _The Way the Body Had to Travel_ (dancing girl press). Her poetry 
 and essays have appeared or are forthcoming in Pleiades, 32 Poems, CALYX, Hobart, So to Speak,
 Glass: A Journal of Poetry, Atticus Review, The Shore, SWWIM, and Up the Staircase Quarterly among others. She received an MFA in creative writing from Georgia
 College and is currently a PhD candidate at Georgia State University. A recent receiptient 
