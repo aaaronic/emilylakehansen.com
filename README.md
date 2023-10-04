@@ -5,7 +5,7 @@ _Pharaoh's Daughter Keeps a Diary_ (forthcoming from Kissing Dynamite Press)
 and _The Way the Body Had to Travel_ (dancing girl press). Her poetry 
 and essays have appeared or are forthcoming in Pleiades, 32 Poems, CALYX, Hobart, So to Speak,
 Glass: A Journal of Poetry, Atticus Review, The Shore, SWWIM, and Up the Staircase Quarterly among others. She received an MFA in creative writing from Georgia
-College and is currently a PhD candidate at Georgia State University. A recent receiptient 
+College and is currently a PhD candidate at Georgia State University. A recent recipient 
 of the Longleaf Poetry Fellowship, Emily has worked as an editor for several literary journals including New South and Minerva Rising and currently serves as a co-editor for Beyond Bars, a Mellon Grant-funded literary journal co-created and edited by incarcerated writers. After spending her childhood zipping across the country as the daughter of a Naval air traffic controller, Emily now lives with in Atlanta where she teaches first-year and creative writing at Agnes Scott College. 
 
 ## Books
