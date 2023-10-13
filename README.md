@@ -44,6 +44,7 @@ _The Way the Body Had To Travel_ - [Dancing Girl Press](https://dulcetshop.mysho
 * ["The Escape Artist."](http://www.sundresspublications.com/stirring/archives/v17/e8/hansene.htm) _Stirring: A Literary Collective_.
 
 ### Essays & Reviews
+* ["Heterochromia"](https://herstryblg.com/theme/2023/6/27/heterochromia) _HerStry_.
 * ["American Pastoral for the 21st Century"](https://www.stilljournal.net/emily-lake-hansen-cnf2023.php) _Still: The Journal_.
 * ["A History of the Body as Told Through Reality Television"](https://sotospeak.submittable.com/submit/257413/for-purchase-2023-print-issue-physical-or-pdf) _So to Speak_. 
 * ["The Lake's Only Daughter"](https://matterpress.com/journal/2021/11/) _The Journal of Compressed Creative Arts_. 
