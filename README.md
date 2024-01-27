@@ -1,10 +1,11 @@
 ## About
 Emily Lake Hansen (she/her) is a fat, queer,  and invisibly disabled writer, teacher, and advocate and the author of the poetry collection
-_Home and Other Duty Stations_ (Kelsay Books) as well as the chapbooks 
+_Home and Other Duty Stations_ (Kelsay Books) as well as two chapbooks:
 _Pharaoh's Daughter Keeps a Diary_ (forthcoming from Kissing Dynamite Press) 
-and _The Way the Body Had to Travel_ (dancing girl press). Her creative work has appeared in _Pleiades_, _32 Poems_, _CALYX_, _So to Speak_, _The South Carolina Review_,
-_Glass: A Journal of Poetry_, _SWWIM_, and _Up the Staircase Quarterly_ among others. Emily's honors include finalist selections from Frontier Poetry's Breakthrough Chapbook Comptetition, the Black River Chapbook Competition, C & R Press's Poetry Book Award, the Santa Fe Writer's Project Literary Award, and the Page Prize for Nonfiction, and a fellowship to Longleaf Writer's Conference. She received an MFA in creative writing from Georgia
-College & State University and is currently a PhD candidate at Georgia State University where she serves as a graduate editor for _Beyond Bars_, a Mellon Grant-funded literary journal co-created with writers from Philips State Prison. Emily has a passion for diversity, equity, and social justice and has worked as a disability learning specialist in addition to serving as the President of the Board of Directors for Grant Park Cooperative Preschool, a nonprofit learning center dedicated to closing racial and economic gaps in early childhood education. After spending her own childhood zipping across the country as a Navy brat, Emily now lives with in Atlanta where she teaches first-year and creative writing at Agnes Scott College. 
+and _The Way the Body Had to Travel_ (dancing girl press). Her poems and essays have appeared in _Pleiades_, _32 Poems_, _CALYX_, _So to Speak_, _The South Carolina Review_,
+_Glass: A Journal of Poetry_, _SWWIM_, and _Up the Staircase Quarterly_, and she has been a finalist for the Frontier Poetry Breakthrough Chapbook Comptetition, the Black River Chapbook Competition, the C & R Press Poetry Book Award, the Santa Fe Writer's Project Literary Award, and the Page Prize for Nonfiction.
+
+Emily received an MFA in creative writing from Georgia College & State University and is currently a PhD candidate at Georgia State University where she serves as a graduate editor for _Beyond Bars_, a Mellon Grant-funded literary journal created in collaboration with writers from Philips State Prison. Emily has a passion for diversity, equity, and social justice and has worked as a disability learning specialist in addition to serving as the President of the Board of Directors for Grant Park Cooperative Preschool, a nonprofit learning center dedicated to closing racial and economic gaps in early childhood education. A former Navy brat, Emily now lives with in Atlanta where she teaches first-year and creative writing at Agnes Scott College. 
 
 ## Books
 [<img src="/assets/images/home_and_other_duty_stations.jpg" alt="Cover Image" />](https://kelsaybooks.com/products/home-and-other-duty-stations)  
