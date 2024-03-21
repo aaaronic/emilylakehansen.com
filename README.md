@@ -5,7 +5,7 @@ _Pharaoh's Daughter Keeps a Diary_ (forthcoming from Kissing Dynamite Press)
 and _The Way the Body Had to Travel_ (dancing girl press). Her poems and essays have appeared in _Pleiades_, _32 Poems_, _CALYX_, _So to Speak_, _The South Carolina Review_,
 _Glass: A Journal of Poetry_, _SWWIM_, and _Up the Staircase Quarterly_ among others, and she has been a finalist for the Frontier Poetry Breakthrough Chapbook Comptetition, the Black River Chapbook Competition, the C&R Press Book Award, the Santa Fe Writer's Project Literary Award, and the Page Prize for Nonfiction.
 
-Emily received an MFA in creative writing from Georgia College & State University and is currently a PhD candidate at Georgia State University where she serves as a graduate editor for _Beyond Bars_, a Mellon Grant-funded literary journal created in collaboration with writers from Philips State Prison. Emily's creative and academic interests in Disability and Fat Studies as well as her committment to social-justice pedagogy are informed by her passion for diversity, equity, and inclusion. She worked as a learning specialist for students with disbilities for five years and recently served a two-year term as the President of the Board of Directors for Grant Park Cooperative Preschool, a nonprofit learning center dedicated to closing racial and economic gaps in early childhood education. A former Navy brat, Emily now lives in Atlanta where she teaches first-year and creative writing at Agnes Scott College. 
+Emily received an MFA in creative writing from Georgia College & State University and is currently a PhD candidate at Georgia State University where she serves as a graduate editor for _Beyond Bars_, a Mellon Grant-funded literary journal created in collaboration with writers from Philips State Prison. Emily's creative and academic interests in Disability and Fat Studies as well as her committment to inclusive and trauma-informed pedagogy are fueled by her own experiences as a neurodiverse learner. She worked as a learning specialist for students with disbilities for five years and recently served a two-year term as the President of the Board of Directors for Grant Park Cooperative Preschool, a nonprofit learning center dedicated to closing racial and economic gaps in early childhood education. A former Navy brat, Emily now lives in Atlanta where she teaches first-year and creative writing at Agnes Scott College. 
 
 ## Books
 [<img src="/assets/images/home_and_other_duty_stations.jpg" alt="Cover Image" />](https://kelsaybooks.com/products/home-and-other-duty-stations)  
@@ -18,6 +18,7 @@ _The Way the Body Had To Travel_ - [Dancing Girl Press](https://dulcetshop.mysho
 ## Selected Publications
 
 ### Poems
+* ["Safety"](https://swwimmiami.substack.com/p/safety) _SWWIM_.
 * ["Contrapuntal Written to Take Up Less Space"](https://www.calyxpress.org/contrapuntal-written-to-take-up-less-space-by-emily-lake-hansen/) _CALYX_.
 * ["A Man on the Street Says I Must Be Fine Because I'm Clearly Not Skipping Any Meals"](https://burrowpress.com/a-man-on-the-street-says-i-must-be-fine-because-im-clearly-not-skipping-any-meals-emily-lake-hansen/) _Burrow Press Review_.
 * ["WOMEN WITHOUT A COUNTRY"](https://www.passengersjournal.com/volume-4-issue-1-poetry/#hansen) _Passangers Journal_.
@@ -52,6 +53,7 @@ _The Way the Body Had To Travel_ - [Dancing Girl Press](https://dulcetshop.mysho
 * ["On 'My Mother as Penelope'."](http://structureandstyle.org/post/93705929440/my-mother-as-penelope) _Structure and Style_.
 
 ## Awards and Nominations
+* Finalist/Shortlisted - [2023 C&R Press Poetry Award](https://www.crpress.org/cr-press-2023-awards/)
 * Finalist - [2023 Breakthrough Chapbook Contest, Frontier Poetry](https://www.frontierpoetry.com/2023/09/13/2023-chapbook-contest-winner-finalists/) 
 * Finalist - [Spring 2022 Black River Chapbook Competition, Black Lawarance Press](https://blacklawrencepress.com/spring-2022-black-river-chapbook-competition-finalists-semifinalists/) 
 * Finalit - [Santa Fe Writers Project Literary Award](https://www.sfwp.com/2022-awards-program-results)
